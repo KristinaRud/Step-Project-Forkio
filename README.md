@@ -1,1 +1,1 @@
-##Hello World Kristina and Oksana
+##Hello World and Oksana
